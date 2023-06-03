@@ -1,0 +1,1 @@
+# simple_Note_RikaLestari_2006173_E
